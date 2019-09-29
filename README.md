@@ -1,2 +1,2 @@
 # deep-dark-fantacy
-world or wonder
+WORLD OF WONDER
